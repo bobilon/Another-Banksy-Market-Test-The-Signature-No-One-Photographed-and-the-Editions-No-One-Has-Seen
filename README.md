@@ -1,0 +1,2 @@
+# Another-Banksy-Market-Test-The-Signature-No-One-Photographed-and-the-Editions-No-One-Has-Seen
+Forensic post-sale analysis of Banksy's 2011 Love Is In The Air (life size), sold at Sotheby's London June 2026 for £6.43M. Documents the unphotographed signature, inverted provenance, dating gaps, and editions that never assemble. With a companion unit tracing photography credits across the artist's first four books
